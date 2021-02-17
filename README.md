@@ -1,1 +1,2 @@
 # hello-world
+Hi I'm Dani, I am an author (I hope) new to the group. I really would like an honest, non-harsh review on my first Novel. I'm plaguing different sites to try and find someone to help and not someone who is going to tear strips out of me and tell me to get back under my writing rock and not come out until I have a best seller written. Its a fictional novel that is drama laced with comedy and is hopefully as entertaining as I would like it to be. Look forward to chatting with everyone and hearing about others experiences
